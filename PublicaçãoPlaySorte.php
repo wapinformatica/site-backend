@@ -1,0 +1,1 @@
+Essa versão conta com ajustes graças ao seu Feedback. Estamos sempre acompanhando seus feedbacks e procurando novas formas de melhorar sua experiência com nosso aplicativo. Fique a vontade para dividir suas opiniões conosco atras do comentários da loja play store e do e-mail dev.app@senarmt.org.br
